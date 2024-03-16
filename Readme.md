@@ -1,7 +1,7 @@
 
 # Hello, I'm Vishal Chothe 👋
 
- ## 👨‍💻 **Welcome to my profile!** 🌟😀 
+ 👨‍💻 **Welcome to my profile!** 🌟😀 
  - **Seeking Opportunities:** Passionate about contributing to esteemed organizations to enrich my experience, acquire hands-on  training, and evolve into a technically proficient professional for the holistic development of the organization.
 
 ---
