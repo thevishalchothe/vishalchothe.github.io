@@ -3,7 +3,8 @@
 
  ## 👨‍💻 **Welcome to my profile!** 🌟😀 
 
-  - **Thank you for visiting.** I am a dedicated IT professional with a passion for programming and a drive to contribute meaningfully to the success of IT organizations. - **Seeking Opportunities:** Passionate about contributing to esteemed organizations to enrich my experience, acquire hands-on  training, and evolve into a technically proficient professional for the holistic development of the organization.
+  - **Thank you for visiting.** I am a dedicated IT professional with a passion for programming and a drive to contribute meaningfully to the success of IT organizations.
+  - **Seeking Opportunities:** Passionate about contributing to esteemed organizations to enrich my experience, acquire hands-on  training, and evolve into a technically proficient professional for the holistic development of the organization.
 
 ---
 
