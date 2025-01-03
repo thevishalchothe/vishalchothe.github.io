@@ -11,8 +11,8 @@
 
 ## Conatct Information 📞
 
-📧 Email: [vishalchothe1407@gmail.com](https://mail.google.com/mail/u/0/#inbox?compose=new)  
-📱 Phone: 8698720310, 9552001231  
+📧 Email: [vishalchothe134@gmail.com](https://mail.google.com/mail/u/0/#inbox?compose=new)  
+📱 Phone: 9552001231  
 📍 Location: Pune, Maharashtra - 411046  
 🔗 LinkedIn: [linkedin.com/in/contact-vishal-chothe](https://linkedin.com/in/contact-vishal-chothe)
 
